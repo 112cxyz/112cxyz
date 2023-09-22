@@ -1,4 +1,4 @@
 ### Hi I am Toby
-I am at collage doing things
+I am at college doing things
 
 Yes, I happen to be called Toby Fox
